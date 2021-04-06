@@ -7,3 +7,5 @@ Current Education:
  
  How To Reach Me:
  📫  alecvictory1993@gmail.com // https://www.linkedin.com/in/alec-victory-576a51185/
+ 
+ If you can't explain it simply, you don't understand it well enough. - Albert Einstein
