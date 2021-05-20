@@ -6,6 +6,6 @@ Current Education:
 🌱  I’m currently learning how to become a full stack developer at Boise CodeWorks
  
  How To Reach Me:
- 📫  alecvictory1993@gmail.com // https://www.linkedin.com/in/alec-victory-576a51185/
+ 📫  alecvictory1993@gmail.com // https://www.linkedin.com/in/alec-victory/
  
  If you can't explain it simply, you don't understand it well enough. - Albert Einstein
